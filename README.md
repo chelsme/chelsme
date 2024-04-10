@@ -16,7 +16,7 @@
 - ⚡ Fun fact: I lived on a ⛴️ in Boston for 2 years
 
 ### 📫 How to reach me
-[LinkedIn]([url](https://www.linkedin.com/in/chelseacrowson/))
+[LinkedIn](https://www.linkedin.com/in/chelseacrowson/)
 
 <!--
 **chelsme/chelsme** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
