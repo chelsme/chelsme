@@ -14,6 +14,7 @@
 - I love learning new things and I'm a very fast learner
 ---
 ### The Fun Stuff
+- 👩‍👩‍👦 I'm a foster parent and I absolutely love it!
 - 💬 Ask me about the camper van I'm renovating
 - ⚡ Fun fact: I lived on a ⛴️ in Boston for 2 years
 - 🩻 I completed my first year of medical school before realizing technology was my real passion
