@@ -13,11 +13,11 @@
 - I'm often the person people come to when they know they need someone who can upskill QUICKLY
 - I love learning new things and I'm a very fast learner
 ---
-### The Fun Stuff
+### 😆 The Fun Stuff
 - 👩‍👩‍👦 I'm a foster parent and I absolutely love it!
-- 💬 Ask me about the camper van I'm renovating
-- ⚡ Fun fact: I lived on a ⛴️ in Boston for 2 years
+- ⛴️ Fun fact: I lived on a boat in Boston for 2 years
 - 🩻 I completed my first year of medical school before realizing technology was my real passion
+- 💬 Ask me about the camper van I'm renovating
 ---
 ### 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/chelseacrowson/)
 
