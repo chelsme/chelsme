@@ -7,7 +7,6 @@
 ### 🚀 Things I want to learn more about
 - I'm always trying to broaden my Full Stack skills, but currently focused on becoming an Angular expert
 - I'm loving the journey of learning Swift
-- I'm very interested in how AI can help me grow as a Developer and improve the quality of my projects
 ---
 ### 🔥 Something I'm proud of
 - I'm often the person people come to when they know they need someone who can upskill QUICKLY
